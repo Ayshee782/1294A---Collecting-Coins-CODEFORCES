@@ -1,0 +1,1 @@
+# 1294A---Collecting-Coins-CODEFORCES
